@@ -1,0 +1,2 @@
+- 👋 Olá, meu nome é Felipe Miranda Pires
+- 👀 Estou apreendendo a programar
