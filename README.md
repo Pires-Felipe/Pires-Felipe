@@ -21,7 +21,7 @@
 ---
 
 ### 📫 Entre em contato
-- 🌐 [Currículo Lattes](https://lattes.cnpq.br/SEU-ID-AQUI)
+- 🌐 [Currículo Lattes](https://lattes.cnpq.br/6893285655558326)
 - 📸 [Instagram do projeto FísicaExp](https://instagram.com/fisicaexp)
 - 📸 [Instagram pessoal](https://instagram.com/piresfelp)
 - ✉️ felipemirandapires80@gmail.com
