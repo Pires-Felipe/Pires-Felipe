@@ -24,8 +24,8 @@
 - 🌐 [Currículo Lattes](https://lattes.cnpq.br/6893285655558326)
 - 📸 [Instagram do projeto FísicaExp](https://instagram.com/fisicaexp)
 - 📸 [Instagram pessoal](https://instagram.com/piresfelp)
-- ✉️ email pessoal: felipemirandapires80@gmail.com
-- ✉️ email educacional: miranda.pires.felipe@escola.pr.gov.br
+- ✉️ Email pessoal: felipemirandapires80@gmail.com
+- ✉️ Email educacional: miranda.pires.felipe@escola.pr.gov.br
 ---
 
 _"Educar não é encher o balde, mas acender o fogo."_ 🔥  
